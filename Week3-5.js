@@ -1,0 +1,1 @@
+// ot khernh b trainer dak exercise 5 in exercise list of week3 te! 
